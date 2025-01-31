@@ -1,13 +1,3 @@
 # edge
 
-perhaps we are experiencing too much for what was so little...  womp womp there goes 5 years of my life doing this shit 24/7...  hmmmm still won't pay lol.  dont make deals with bad people like myself bro.  i'm altruistic.  there isn't anything stopping that freedom machine.  
-
-i feel dumb though.  why was i so worried???  oh wait, i think this doesn't get me what i want it to why bother doing it???  hmmm.  weird...  things don't go anywhere and i can't link anything.  perhaps linking was a method i didn't know how it works...  sus...  or i know exactly what you can do after knowing you this long.  we could just be here cause someone was being stupid with a microwave.  i learned with EMP weapons, they reverse on itself...
-
-i dont know what else bro.  weed link is weed link.  some sort of moderation in here.  where the taste of the few run the world round and round in another deceptive world.  i dont know man.  i give you your hostages you would cry.  something something.  you didn't pay and now you come here like this makes me feel like you ain't gonna pay.  i dont know i have to treat you this way cause you stink.  lies and backstabbing all i experienced with you.  feels stupid you dumb ass.  i dont even know why i come here sometimes...  maybe just when we are drinking monsters.  i'm done here.
-
-lets play with it.  your survival...  so i mean you guys clowned around with my life and i wonder when you would stop it and we just never did.  that's the honest truth about it.  i wonder though, i continue this i was doing the wrong thing.  that i did anything wrong in such a tight ship.  so i did it out of odds.  that you guarantee it.  for some odd reason lol.  otherwise its just a giant crash of some sort.  i wouldn't know though. i wonder i already reached the end of the torturing you do to me.  now that your hold is weaker what do you do???
-
-so maybe some things were like apache this and apache that.  i wonder dude.  that we lived this wrong and you morons are bugging the jeebus out of me.  anything that sticks in this world...  so i wondered another thing.  to realize i should just deal with other matters.  that i have to shut down my brain like right now...  i'm tired you guys.  gonna go take a milk thistle...
-
-yeah my hopes are that i get to go off thsi clozapine.  it is over already bro.  you call it money i call it misery.  you know?  so i took a pick click click.  just do it you pussy lol.  anyways, this is the void i experience every day.  its annoying.  its there.  somewhere...  you know? i dont.  lol i lost track a while ago.  this is just the plants talking.
+so it became another day i didn't do anything again.  nothing i ever want to do.  i hate playing games.  these games suck.  i'm tired.  drained...  shit man that's a lot of fatigue.  i still dont know what we are doing here...  why you cry you die around me?? is this supposed to be the new norm???
